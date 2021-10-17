@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @MalikAtelier
+- 👀 I’m interested graphic designing
+- 🌱 I’m currently learning advanced innovative designs
+- 💞️ I’m looking to collaborate on graphic designing projects
+- 📫 How to reach me https://www.fiverr.com/malik_atelier/create-a-vintage-retro-logo-badge-design
